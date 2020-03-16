@@ -13,7 +13,7 @@
 ![alt text](https://tripmydream.cc/travelhub/travel/block_gallery/92/857/default_92857.jpg "Logo Title Text 1")
 
 *Канарские острова*, **Испания**
-![alt text](https://atlasjelanii.info/wp-content/uploads/2018/02/ispaniya-i-kanary-678x381.jpg "Logo Title Text 1")
+![alt text](https://www.samaraintour.ru/Content/Img/blog-42900-big.jpg "Logo Title Text 1")
 
 *Ибица*, **Испания**
 ![alt text](https://espanarusa.com/files/autoupload/21/82/56/zjpbzdhh393178.jpg "Logo Title Text 1")
